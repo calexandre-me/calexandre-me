@@ -7,4 +7,4 @@
 -     LinkedIn: Charles Alexandre MEANCE
 -     Twitter: @CharlesMeance_A
 
-*Let's use Softwares to make a more flexible word*
+*Let's use Softwares to make a better and more flexible world*
